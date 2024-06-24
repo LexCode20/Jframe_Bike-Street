@@ -1,1 +1,1 @@
-![Captura de tela 2024-06-23 170953](https://github.com/LexCode20/Jframe_Bike-Street/assets/169193702/57c518f0-40eb-4029-98d4-c64c4cc33ff9)
+![Captura de tela 2024-06-23 234854](https://github.com/LexCode20/Jframe_Bike-Street/assets/169193702/25a7b88b-1158-473e-ae44-8d0e1a1259ad)
